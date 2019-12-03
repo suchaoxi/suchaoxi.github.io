@@ -1,1 +1,1 @@
-map of myb favoriate destinations
+map of my favoriate destinations
