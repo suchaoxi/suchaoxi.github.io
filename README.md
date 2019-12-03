@@ -1,1 +1,1 @@
-# suchaoxi.github.io
+map of myb favoriate destinations
